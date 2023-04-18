@@ -1,3 +1,4 @@
+<h1 align="center">Vrinda Store</h1>
 ## Introduction 
 
 With an ambitious dream of making stylish yet sustainable ethnic wear, a handful of designs, a visit to the tailor, and a late night call with a designer, Vrinda Clothing Studio was born. Initially starting out with Instagram posts, we have come a long way since our inception in 2018. Over the course of four years, we have successfully built a 30K+ loyal family of followers, a dedicated production house formed of skilled tailors and our founder's insightful designs. Our current catalog is comprised of 500+ products spread across different categories.
